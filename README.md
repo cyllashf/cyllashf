@@ -1,3 +1,5 @@
+## ALOOO-!!
+
 # 💫 About Me:
 👋 Working on a handful of creative experiments—writing, music, and everything in between.<br><br>🤝 Excited to collaborate on storytelling, creative media, or musical ideas.<br><br>❓ Looking to improve my consistency and build stronger creative habits.<br><br>🌱 Currently learning how to express ideas in a softer, more intentional way.<br><br>💬 Ask me about songwriting, journaling, calm workflows, or creative routine building.<br><br>🎀 Fun fact:  <br>I can sit quietly for hours—my brain, however, is busy writing chapters.<br>
 
